@@ -4,9 +4,9 @@
 
 [http://joby.com/ultrafit-sling-strap]
 
-## [Hoya 49 mm Filter Kit II Digital for Lens](/http://amzn.eu/4O77i2Y)
+## [Hoya 49 mm Filter Kit II Digital for Lens](http://amzn.eu/4O77i2Y)
 
-![Hoya 49 mm Filter Kit II Digital for Lens](/images/ "Hoya 49 mm Filter Kit II Digital for Lens")
+![Hoya 49 mm Filter Kit II Digital for Lens](/images/hoya_lens_filters.jpg "Hoya 49 mm Filter Kit II Digital for Lens")
 
 # Sport
 

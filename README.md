@@ -10,8 +10,9 @@
 
 # Sport
 
-## Resistance Loop Bands
-[https://www.amazon.co.uk/d/Pilates/Resistance-Loop-Bands-Exercise-Improving-Rehabilitation-Guarantee/B011KZ152K/ref=sr_1_2?ie=UTF8&qid=1499428646&sr=8-2&keywords=theraband]
+## [Resistance Loop Bands](https://www.amazon.co.uk/d/Pilates/Resistance-Loop-Bands-Exercise-Improving-Rehabilitation-Guarantee/B011KZ152K/ref=sr_1_2?ie=UTF8&qid=1499428646&sr=8-2&keywords=theraband)
+
+![Resistance Loop Bands](/images/therabands_.jpg "Resistance Loop Bands")
 
 # Other stuff
 

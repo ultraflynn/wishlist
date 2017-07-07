@@ -1,8 +1,8 @@
 # Photography
 
-## Joby UltraFit Sling Strap M-XL
+## [Joby UltraFit Sling Strap M-XL](http://joby.com/ultrafit-sling-strap)
 
-[http://joby.com/ultrafit-sling-strap]
+![Joby UltraFit Sling Strap M-XL](/images/Joby UltraFit Sling Strap M-XL.jpg "Joby UltraFit Sling Strap M-XL")
 
 ## [Hoya 49 mm Filter Kit II Digital for Lens](http://amzn.eu/4O77i2Y)
 

@@ -1,5 +1,9 @@
 # Photography
 
+## [Simon Baxter Photography Workshop](https://baxter.photos/photography-workshops/)
+
+![Simon Baxter Photography Workshop](/images/simon-baxter.jpg "Simon Baxter Photography Workshop")
+
 ## [Joby UltraFit Sling Strap M-XL](http://joby.com/ultrafit-sling-strap)
 
 ![Joby UltraFit Sling Strap M-XL](/images/Joby UltraFit Sling Strap M-XL.jpg "Joby UltraFit Sling Strap M-XL")

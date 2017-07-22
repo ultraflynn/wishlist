@@ -1,10 +1,16 @@
 # Photography
 
+## [Sony SELP18105G E Mount APS-C 18-105 mm F4.0 Zoom G Lens - Black](https://www.techinthebasket.com/sony-e-pz-18-105mm-f4-g-oss-lens.html)
+
+![Sony SELP18105G E Mount APS-C 18-105 mm F4.0 Zoom G Lens - Black]/images/SELP18105G.jpg "Sony SELP18105G E Mount APS-C 18-105 mm F4.0 Zoom G Lens - Black")
+
+Lens Option 1 - Versatile lens
+
 ## [Sony SEL1018 E Mount - APS-C 10-18mm F4.0 Wide angle Zoom Lens](https://www.techinthebasket.com/sony-e-10-18mm-lens.html)
 
 ![Sony SEL1018 E Mount - APS-C 10-18mm F4.0 Wide angle Zoom Lens](/images/SEL1018.jpg "Sony SEL1018 E Mount - APS-C 10-18mm F4.0 Wide angle Zoom Lens")
 
-I currently have two lenses for my camera. One that came with it and is good for general snaps and the one I got for Xmas which is a really good 35mm lens. I'd like a wide field of view for landscape photography. The Sony SEL1018 is not cheap but it's excellent quality.
+Lens Option 2 - Primary use of this lens is for landscapes.
 
 ## [Simon Baxter Photography Workshop](https://baxter.photos/photography-workshops/)
 

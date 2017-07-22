@@ -1,5 +1,13 @@
 # Photography
 
+## []
+
+## [Sony SEL1018 E Mount - APS-C 10-18mm F4.0 Wide angle Zoom Lens](https://www.techinthebasket.com/sony-e-10-18mm-lens.html)
+
+![Sony SEL1018 E Mount - APS-C 10-18mm F4.0 Wide angle Zoom Lens](/images/SEL1018.jpg "Sony SEL1018 E Mount - APS-C 10-18mm F4.0 Wide angle Zoom Lens")
+
+I currently have two lenses for my camera. One that came with it and is good for general snaps and the one I got for Xmas which is a really good 35mm lens. I'd like a wide field of view for landscape photography. The Sony SEL1018 is not cheap but it's excellent quality.
+
 ## [Simon Baxter Photography Workshop](https://baxter.photos/photography-workshops/)
 
 ![Simon Baxter Photography Workshop](/images/simon-baxter.jpg "Simon Baxter Photography Workshop")

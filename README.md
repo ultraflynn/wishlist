@@ -1,7 +1,5 @@
 # Photography
 
-## []
-
 ## [Sony SEL1018 E Mount - APS-C 10-18mm F4.0 Wide angle Zoom Lens](https://www.techinthebasket.com/sony-e-10-18mm-lens.html)
 
 ![Sony SEL1018 E Mount - APS-C 10-18mm F4.0 Wide angle Zoom Lens](/images/SEL1018.jpg "Sony SEL1018 E Mount - APS-C 10-18mm F4.0 Wide angle Zoom Lens")

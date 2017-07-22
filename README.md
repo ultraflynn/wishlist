@@ -2,7 +2,7 @@
 
 ## [Sony SELP18105G E Mount APS-C 18-105 mm F4.0 Zoom G Lens - Black](https://www.techinthebasket.com/sony-e-pz-18-105mm-f4-g-oss-lens.html)
 
-![Sony SELP18105G E Mount APS-C 18-105 mm F4.0 Zoom G Lens - Black]/images/SELP18105G.jpg "Sony SELP18105G E Mount APS-C 18-105 mm F4.0 Zoom G Lens - Black")
+![Sony SELP18105G E Mount APS-C 18-105 mm F4.0 Zoom G Lens - Black](/images/SELP18105G.jpg "Sony SELP18105G E Mount APS-C 18-105 mm F4.0 Zoom G Lens - Black")
 
 Lens Option 1 - Versatile lens
 

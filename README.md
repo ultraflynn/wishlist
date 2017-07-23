@@ -1,16 +1,17 @@
 # Photography
 
+## [Samyang 12 mm F2.0 Manual Focus Lens for Sony-E - Black](http://amzn.eu/iT8VvWq)
+[Product Page](http://www.samyanglensglobal.com/product/detail.do?SQ=15)
+
+![Samyang 12 mm F2.0 Manual Focus Lens for Sony-E - Black](/images/samyang.jpg "Samyang 12 mm F2.0 Manual Focus Lens for Sony-E - Black")
+
+Lens Option 1 - Wide-angle landscapes
+
 ## [Sony SELP18105G E Mount APS-C 18-105 mm F4.0 Zoom G Lens - Black](https://www.techinthebasket.com/sony-e-pz-18-105mm-f4-g-oss-lens.html)
 
 ![Sony SELP18105G E Mount APS-C 18-105 mm F4.0 Zoom G Lens - Black](/images/SELP18105G.jpg "Sony SELP18105G E Mount APS-C 18-105 mm F4.0 Zoom G Lens - Black")
 
-Lens Option 1 - Versatile lens
-
-## [Sony SEL1018 E Mount - APS-C 10-18mm F4.0 Wide angle Zoom Lens](https://www.techinthebasket.com/sony-e-10-18mm-lens.html)
-
-![Sony SEL1018 E Mount - APS-C 10-18mm F4.0 Wide angle Zoom Lens](/images/SEL1018.jpg "Sony SEL1018 E Mount - APS-C 10-18mm F4.0 Wide angle Zoom Lens")
-
-Lens Option 2 - Primary use of this lens is for landscapes.
+Lens Option 2 - Versatile replacement for the standard kit lens
 
 ## [Simon Baxter Photography Workshop](https://baxter.photos/photography-workshops/)
 

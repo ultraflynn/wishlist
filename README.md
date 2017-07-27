@@ -6,7 +6,7 @@
 
 Lens Option 1 - Versatile replacement for the standard kit lens
 
-## [Samyang 12 mm F2.0 Manual Focus Lens for Sony-E - Black](http://amzn.eu/iT8VvWq)
+## [Samyang 12 mm F2.0 Manual Focus Lens for Sony-E - Black](https://www.amazon.co.uk/dp/B00MTXXSAK/ref=cm_sw_r_cp_ep_dp_c8qDzb1EHFYX4)
 [Product Page](http://www.samyanglensglobal.com/product/detail.do?SQ=15)
 
 ![Samyang 12 mm F2.0 Manual Focus Lens for Sony-E - Black](/images/samyang.jpg "Samyang 12 mm F2.0 Manual Focus Lens for Sony-E - Black")

@@ -1,23 +1,22 @@
 # Photography
 
+## [Sony SELP18105G E Mount APS-C 18-105 mm F4.0 Zoom G Lens - Black](https://www.amazon.co.uk/d/Electronics-Photo/Sony-SELP18105G-Mount-APS-C-18-105mm-F4-0-Zoom/B00F5X17KY)
+
+![Sony SELP18105G E Mount APS-C 18-105 mm F4.0 Zoom G Lens - Black](/images/SELP18105G.jpg "Sony SELP18105G E Mount APS-C 18-105 mm F4.0 Zoom G Lens - Black")
+
+Lens Option 1 - Versatile replacement for the standard kit lens
+
 ## [Samyang 12 mm F2.0 Manual Focus Lens for Sony-E - Black](http://amzn.eu/iT8VvWq)
 [Product Page](http://www.samyanglensglobal.com/product/detail.do?SQ=15)
 
 ![Samyang 12 mm F2.0 Manual Focus Lens for Sony-E - Black](/images/samyang.jpg "Samyang 12 mm F2.0 Manual Focus Lens for Sony-E - Black")
 
-Lens Option 1 - Wide-angle landscapes
-
-## [Sony SELP18105G E Mount APS-C 18-105 mm F4.0 Zoom G Lens - Black](http://amzn.eu/2BSlHYLl)
-
-![Sony SELP18105G E Mount APS-C 18-105 mm F4.0 Zoom G Lens - Black](/images/SELP18105G.jpg "Sony SELP18105G E Mount APS-C 18-105 mm F4.0 Zoom G Lens - Black")
-
-Lens Option 2 - Versatile replacement for the standard kit lens
+Lens Option 2 - Wide-angle landscape lens
 
 ## [Simon Baxter Photography Workshop](https://baxter.photos/photography-workshops/)
-
 ![Simon Baxter Photography Workshop](/images/simon-baxter.jpg "Simon Baxter Photography Workshop")
 
-One of my favourite photographers runs a 1 day workshop on landscape photography. His work is amazing and it would be incredible to spend the day with him learning his approach. The workshop is in Yorkshire though so this would be a bit of a trip. I'd probably take a Friday or a Monday off work to attend this and I'd also be tempted to take the wife along for the ride. We could stay in a nice hotel for a couple of nights and eat good food.
+One of my favourite photographers runs a 1 day workshop on landscape photography. His work is amazing and it would be incredible to spend the day with him learning his approach. The workshop is in Yorkshire though so this would be a bit of a trip. I'd probably take a Friday or a Monday off work to attend this and I'd also be tempted to take the wife along for the ride if she was willing. We could stay in a nice hotel for a couple of nights and eat good food.
 
 ## [Joby UltraFit Sling Strap M-XL](http://joby.com/ultrafit-sling-strap)
 

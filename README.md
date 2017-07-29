@@ -50,7 +50,7 @@ I've got a big race coming up and I've been looking at getting some of these for
 
 Also for my next race, these would be great. I'd like these in Large.
 
-# Other stuff
+# Tech and Gaming
 
 ## [Sony MDR-ZX110NA Overhead Noise Cancelling Headphones - Black](https://www.amazon.co.uk/dp/B00N3WWM58/ref=cm_sw_r_cp_ep_dp_C1fFzb8JCFXD3) - around £35
 

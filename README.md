@@ -64,19 +64,19 @@ I'd like a set of headphones for the office. Everyone else seems to wear them an
 
 Nice big mouse mat to replace my current code at home that looking pretty tired.
 
-## [EVE Online Coffee Mug](https://eveonline-merchandise-store.myshopify.com/collections/drone-maintenance-ledger/products/eve-online-coffee-mug)
+## [EVE Online Coffee Mug](https://eveonline-merchandise-store.myshopify.com/collections/drone-maintenance-ledger/products/eve-online-coffee-mug) - around £8
 
 ![EVE Online Coffee Mug](/images/EVE_CoffeeMug.jpg "EVE Online Coffee Mug")
 
 Cool EVE Online mug.
 
-## [EVE Online T-Shirt](https://eveonline-merchandise-store.myshopify.com/collections/apparel/products/how-do-i-warp-to-something-t-shirt)
+## [EVE Online T-Shirt](https://eveonline-merchandise-store.myshopify.com/collections/apparel/products/how-do-i-warp-to-something-t-shirt) - around £15
 
 ![EVE Online T-Shirt](/images/EVE-T-Shirt.png "EVE Online T-Shirt")
 
 Cool EVE Online T-Shirt.
 
-## [EVE Online Decal Sheet](https://eveonline-merchandise-store.myshopify.com/collections/eve-backpack/products/decal-sheet)
+## [EVE Online Decal Sheet](https://eveonline-merchandise-store.myshopify.com/collections/eve-backpack/products/decal-sheet) - around £5
 
 ![EVE Online Decal Sheet](/images/eve_online_decals.jpg "EVE Online Decal Sheet")
 

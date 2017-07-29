@@ -4,14 +4,14 @@
 
 ![Sony SELP18105G E Mount APS-C 18-105 mm F4.0 Zoom G Lens - Black](/images/SELP18105G.jpg "Sony SELP18105G E Mount APS-C 18-105 mm F4.0 Zoom G Lens - Black")
 
-Lens Option 1 - Versatile replacement for the standard kit lens
+Lens Option 1 - Versatile replacement for the standard kit lens.
 
 ## [Samyang 12 mm F2.0 Manual Focus Lens for Sony-E - Black](https://www.amazon.co.uk/dp/B00MTXXSAK/ref=cm_sw_r_cp_ep_dp_c8qDzb1EHFYX4)
 [Product Page](http://www.samyanglensglobal.com/product/detail.do?SQ=15)
 
 ![Samyang 12 mm F2.0 Manual Focus Lens for Sony-E - Black](/images/samyang.jpg "Samyang 12 mm F2.0 Manual Focus Lens for Sony-E - Black")
 
-Lens Option 2 - Wide-angle landscape lens
+Lens Option 2 - Wide-angle landscape lens primarily for landscape photography.
 
 ## [Simon Baxter Photography Workshop](https://baxter.photos/photography-workshops/)
 ![Simon Baxter Photography Workshop](/images/simon-baxter.jpg "Simon Baxter Photography Workshop")
@@ -28,7 +28,7 @@ I'd like a good strap for my camera. The wrist strap I have at the moment is fin
 
 ![Hoya 49 mm Filter Kit II Digital for Lens](/images/hoya_lens_filters.jpg "Hoya 49 mm Filter Kit II Digital for Lens")
 
-This kits has 3 filters; one for protection from dust, one for bright sunlight and another for long exposures.
+This kits has 3 filters; one for protection from dust, one for bright sunlight and another for long exposures. I'd use these on my current 35mm prime lens (which I use the most) as they wouldn't fit either of the two lenses I've mentioned above.
 
 # Sport
 
@@ -38,7 +38,31 @@ This kits has 3 filters; one for protection from dust, one for bright sunlight a
 
 Some big rubber bands to help strengthen my ankles.
 
+## [Compressport Thigh Compression Sleeve Quad](https://www.compressport.com/eshop/en/sport/47--quad.html)
+
+![Compressport Thigh Compression Sleeve Quad](/images/quad-guards.jpg "Compressport Thigh Compression Sleeve Quad")
+
+I've got a big race coming up and I've been looking at getting some of these for ages. I'd like them in size Medium and colour Black.
+
+### [Race Ultra Mitt](https://www.inov-8.com/men/accessories/gloves-and-mitts/race-ultra-mitt)
+
+![Race Ultra Mitt](/images/race_ultra_mitt.jpg "Race Ultra Mitt")
+
+Also for my next race, these would be great. I'd like these in Large.
+
 # Other stuff
+
+## [Sony MDR-ZX110NA Overhead Noise Cancelling Headphones - Black](https://www.amazon.co.uk/dp/B00N3WWM58/ref=cm_sw_r_cp_ep_dp_C1fFzb8JCFXD3)
+
+![Sony MDR-ZX110NA Overhead Noise Cancelling Headphones - Black](/images/headphones.jpg "Sony MDR-ZX110NA Overhead Noise Cancelling Headphones - Black")
+
+I'd like a set of headphones for the office. Everyone else seems to wear them and I'd like a decent set of headphones to code with.
+
+## [SteelSeries QcK, Gaming Mouse Pad](https://www.amazon.co.uk/gp/product/B000UEZ36W)
+
+![SteelSeries QcK, Gaming Mouse Pad](/images/mousemat.jpg "SteelSeries QcK, Gaming Mouse Pad")
+
+Nice big mouse mat to replace my current code at home that looking pretty tired.
 
 ## [EVE Online Coffee Mug](https://eveonline-merchandise-store.myshopify.com/collections/drone-maintenance-ledger/products/eve-online-coffee-mug)
 
@@ -51,3 +75,9 @@ Cool EVE Online mug.
 ![EVE Online T-Shirt](/images/EVE-T-Shirt.png "EVE Online T-Shirt")
 
 Cool EVE Online T-Shirt.
+
+## [EVE Online Decal Sheet](https://eveonline-merchandise-store.myshopify.com/collections/eve-backpack/products/decal-sheet)
+
+![EVE Online Decal Sheet](/images/eve_online_decals.jpg "EVE Online Decal Sheet")
+
+Some cool EVE Online decals to stick on stuff.

@@ -44,7 +44,7 @@ Some big rubber bands to help strengthen my ankles.
 
 I've got a big race coming up and I've been looking at getting some of these for ages. I'd like them in size Medium and colour Black. [product](https://www.compressport.com/eshop/en/sport/47--quad.html)
 
-### [Race Ultra Mitt](https://www.inov-8.com/men/accessories/gloves-and-mitts/race-ultra-mitt) - around £20
+## [Race Ultra Mitt](https://www.inov-8.com/men/accessories/gloves-and-mitts/race-ultra-mitt) - around £20
 
 ![Race Ultra Mitt](/images/race_ultra_mitt.jpg "Race Ultra Mitt")
 

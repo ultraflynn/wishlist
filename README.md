@@ -1,28 +1,27 @@
 # Photography
 
-## [Sony SELP18105G E Mount APS-C 18-105 mm F4.0 Zoom G Lens - Black](https://www.amazon.co.uk/d/Electronics-Photo/Sony-SELP18105G-Mount-APS-C-18-105mm-F4-0-Zoom/B00F5X17KY)
+## [Sony SELP18105G E Mount APS-C 18-105 mm F4.0 Zoom G Lens - Black](https://www.amazon.co.uk/d/Electronics-Photo/Sony-SELP18105G-Mount-APS-C-18-105mm-F4-0-Zoom/B00F5X17KY) - around £500
 
 ![Sony SELP18105G E Mount APS-C 18-105 mm F4.0 Zoom G Lens - Black](/images/SELP18105G.jpg "Sony SELP18105G E Mount APS-C 18-105 mm F4.0 Zoom G Lens - Black")
 
-Lens Option 1 - Versatile replacement for the standard kit lens.
+Lens Option 1 - Versatile replacement for the standard kit lens. Would give me great range and useful for most situations.
 
-## [Samyang 12 mm F2.0 Manual Focus Lens for Sony-E - Black](https://www.amazon.co.uk/dp/B00MTXXSAK/ref=cm_sw_r_cp_ep_dp_c8qDzb1EHFYX4)
-[Product Page](http://www.samyanglensglobal.com/product/detail.do?SQ=15)
+## [Samyang 12 mm F2.0 Manual Focus Lens for Sony-E - Black](https://www.amazon.co.uk/dp/B00MTXXSAK/ref=cm_sw_r_cp_ep_dp_c8qDzb1EHFYX4) - around £300
 
 ![Samyang 12 mm F2.0 Manual Focus Lens for Sony-E - Black](/images/samyang.jpg "Samyang 12 mm F2.0 Manual Focus Lens for Sony-E - Black")
 
-Lens Option 2 - Wide-angle landscape lens primarily for landscape photography.
+Lens Option 2 - Wide-angle landscape lens primarily for landscape photography. After the lens I mentioned above this is the other lens I'd like. [product](http://www.samyanglensglobal.com/product/detail.do?SQ=15)
 
 ## [Simon Baxter Photography Workshop](https://baxter.photos/photography-workshops/)
-![Simon Baxter Photography Workshop](/images/simon-baxter.jpg "Simon Baxter Photography Workshop")
+![Simon Baxter Photography Workshop](/images/simon-baxter.jpg "Simon Baxter Photography Workshop") - £249
 
 One of my favourite photographers runs a 1 day workshop on landscape photography. His work is amazing and it would be incredible to spend the day with him learning his approach. The workshop is in Yorkshire though so this would be a bit of a trip. I'd probably take a Friday or a Monday off work to attend this and I'd also be tempted to take the wife along for the ride if she was willing. We could stay in a nice hotel for a couple of nights and eat good food.
 
-## [Joby UltraFit Sling Strap M-XL](http://joby.com/ultrafit-sling-strap)
+## [Joby UltraFit Sling Strap M-XL](https://www.amazon.co.uk/dp/B0096JZRBI/ref=cm_sw_r_cp_ep_dp_HqgFzb2SHP68X)
 
 ![Joby UltraFit Sling Strap M-XL](/images/Joby UltraFit Sling Strap M-XL.jpg "Joby UltraFit Sling Strap M-XL")
 
-I'd like a good strap for my camera. The wrist strap I have at the moment is fine but I'd like the option of having both hands free.
+I'd like a good strap for my camera. The wrist strap I have at the moment is fine but I'd like the option of having both hands free. [product](http://joby.com/ultrafit-sling-strap)
 
 ## [Hoya 49 mm Filter Kit II Digital for Lens](http://amzn.eu/4O77i2Y)
 
@@ -38,11 +37,11 @@ This kits has 3 filters; one for protection from dust, one for bright sunlight a
 
 Some big rubber bands to help strengthen my ankles.
 
-## [Compressport Thigh Compression Sleeve Quad](https://www.compressport.com/eshop/en/sport/47--quad.html)
+## [Compressport Thigh Compression Sleeve Quad](https://www.amazon.co.uk/dp/B004WDLYAG/ref=cm_sw_r_cp_ep_dp_UsgFzbKG74NK4)
 
 ![Compressport Thigh Compression Sleeve Quad](/images/quad-guards.jpg "Compressport Thigh Compression Sleeve Quad")
 
-I've got a big race coming up and I've been looking at getting some of these for ages. I'd like them in size Medium and colour Black.
+I've got a big race coming up and I've been looking at getting some of these for ages. I'd like them in size Medium and colour Black. [product](https://www.compressport.com/eshop/en/sport/47--quad.html)
 
 ### [Race Ultra Mitt](https://www.inov-8.com/men/accessories/gloves-and-mitts/race-ultra-mitt)
 
@@ -56,7 +55,7 @@ Also for my next race, these would be great. I'd like these in Large.
 
 ![Sony MDR-ZX110NA Overhead Noise Cancelling Headphones - Black](/images/headphones.jpg "Sony MDR-ZX110NA Overhead Noise Cancelling Headphones - Black")
 
-I'd like a set of headphones for the office. Everyone else seems to wear them and I'd like a decent set of headphones to code with.
+I'd like a set of headphones for the office. Everyone else seems to wear them and I'd like a decent set of headphones to code with. I'd like these in Black.
 
 ## [SteelSeries QcK, Gaming Mouse Pad](https://www.amazon.co.uk/gp/product/B000UEZ36W)
 

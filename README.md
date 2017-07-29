@@ -16,7 +16,7 @@ Lens Option 2 - Wide-angle landscape lens primarily for landscape photography. A
 
 ![Simon Baxter Photography Workshop](/images/simon-baxter.jpg "Simon Baxter Photography Workshop")
 
-One of my favourite photographers runs a 1 day workshop on landscape photography. His work is amazing and it would be incredible to spend the day with him learning his approach. The workshop is in Yorkshire though so this would be a bit of a trip. I'd probably take a Friday or a Monday off work to attend this and I'd also be tempted to take the wife along for the ride if she was willing. We could stay in a nice hotel for a couple of nights and eat good food.
+One of my favourite photographers runs a 1 day workshop on landscape photography. His work is amazing and it would be incredible to spend the day with him learning his approach. The workshop is in Yorkshire though so this would be a bit of a trip. I'd want to do this next year though, perhaps in early spring.
 
 ## [Joby UltraFit Sling Strap M-XL](https://www.amazon.co.uk/dp/B0096JZRBI/ref=cm_sw_r_cp_ep_dp_HqgFzb2SHP68X) - around £30
 
